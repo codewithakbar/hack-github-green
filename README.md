@@ -1,4 +1,4 @@
 
  ## Hack Github Commit 
  ### Watch video <a href="https://www.youtube.com/channel/UCelbvkWLSOj8eQjDd79ZN9g">here</a> 
- Tue 20 Oct 2020 
+ Thu 12 Nov 2020 
